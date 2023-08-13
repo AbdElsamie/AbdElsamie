@@ -7,7 +7,7 @@
 
 ⚐ Based in Algeria
 
-ϟ Currently Currently building the next project
+ϟ Currently building the next project
 
 
 
